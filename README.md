@@ -10,7 +10,7 @@ The Royal X Casino App offers an exhilarating experience where gaming meets luxu
 Click the button below to download the latest version of the Royal X Casino App:
 
 <div align="center">
-  <a href="https://example.com/download" style="
+  <a href="https://royalxcasino222.com/?refer_id=101109490575" style="
     display: inline-block;
     padding: 15px 30px;
     font-size: 18px;
