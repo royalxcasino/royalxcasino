@@ -1,4 +1,5 @@
 # Royal X Casino – The Leading Online Casino Game App in Pakistan
+<meta name="google-site-verification" content="H_pFszwbwySizI3qF4yvr2lz3OlvqWIKBB69YTDSVDU" />
 
 **Royal X Casino** is a fast-growing **online casino game app in Pakistan**, offering a wide range of thrilling games including slots, roulette, poker, teen patti, and more. Designed for Pakistani users, Royal X Casino combines real-time gaming excitement with secure transactions and a smooth user experience.
 
