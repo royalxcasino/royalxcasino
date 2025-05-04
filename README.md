@@ -1,4 +1,5 @@
 # Royal X Casino Game Download For Android 2025
+<meta name="google-site-verification" content="H_pFszwbwySizI3qF4yvr2lz3OlvqWIKBB69YTDSVDU" />
 
 Welcome to the official app download page for **Royal X Casino App**!
 
